@@ -1,4 +1,4 @@
-
+Enhance Little Snitch for macOS with premium Little Snitch for macOS Extension | two-factor-authentication + data-breach-alerts, the #1 extension. Includes
 
 
 
